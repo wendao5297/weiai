@@ -1,2 +1,0 @@
-# weiai
-linsten1
